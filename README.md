@@ -1,1 +1,0 @@
-# Simple-furniture-store
